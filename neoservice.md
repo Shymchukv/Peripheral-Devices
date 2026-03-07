@@ -20,4 +20,4 @@
 | | | **Всього до сплати:** | **59 998,12** | |
 
 ---
-*Звіт згенеровано на основі прайс-листа магазину комп'ютерної техніки Neo-Service.*
+<img width="1621" height="912" alt="Без імені" src="https://github.com/user-attachments/assets/382b5f4b-1042-4fc8-b6ac-80dcba95dcd9" />
